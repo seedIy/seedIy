@@ -1,7 +1,7 @@
   
 <img width="686" height="359" alt="image" src="https://github.com/user-attachments/assets/b2de8f06-d991-496e-917d-5380b6913da7" />
 
-My name is sprout.i made tjis for ponytown. or whatever. i go by he/him. i love bruce my husbnad. ok.
+My name is sprout or wy.i made tjis for ponytown. or whatever. i go by he/him. i love bruce my husbnad. ok.
 
 i'm fictionkjn. ask me about it or whatever.
 
