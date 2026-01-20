@@ -1,7 +1,7 @@
   
 <img src="https://files.catbox.moe/30eg9j.webp"/>
 
-My name is sprout or wy.i made tjis for ponytown. or whatever. i go by he/him. i love bruce my husbnad. ok.
+Call me kaz, wy or sprout.i made tjis for ponytown. or whatever. i go by he/him. i love bruce my husbnad. ok.
 
 i'm fictionkjn. ask me about it or whatever.
 
