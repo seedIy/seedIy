@@ -5,7 +5,7 @@ Call me kaz, wy or sprout.i made tjis for ponytown. or whatever. i go by he/him.
 
 i'm fictionkjn. ask me about it or whatever.
 
-I'm suuallly chilling on my own or making fun of people with fuhiFORTHE LOve of GOD STOP BRINGING UP COSMO I AM SO TIRED OF ALL OF YOU SHUT UUPP OK
+I'm suuallly chilling on my own or making fun of people with fuhiFORTHE LOve of GOD STOP BRINGING UP COSMO WHEN I USE MY SPRT PONY I AM SO TIRED OF ALL OF YOU SHUT UUPP OK
 
 can fuhi be dandy world
 
